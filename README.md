@@ -1,2 +1,0 @@
-# FINAL Aplicaciones Informáticas-
- 
